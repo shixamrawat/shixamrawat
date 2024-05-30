@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Shivam Rawat
+- 👀 I’m interested in football,F1,tech,space and many more
+- 🌱 I’m currently thinking of learning a language 
+- 💞️ I’m looking to seek help from people to guide me
